@@ -1,4 +1,3 @@
+![Uploading portfolio image.jpg…]()
 
-
-![Uploading portfolio website image.png…]()
 
